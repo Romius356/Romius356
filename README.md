@@ -6,4 +6,4 @@
 Romius356/Romius356 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-![992408346_100x80](https://github.com/Romius356/Romius356/assets/156628458/a75338e1-1a25-46a7-b781-a36ca1094ee9)
+![Scratch logo S](https://github.com/Romius356/Romius356/assets/156628458/795182c7-b510-4867-8a09-eaaf753592d9)
